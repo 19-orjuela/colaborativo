@@ -8,5 +8,5 @@
 6. Motiva la responsabilidad y el compromiso mutuo
 7. Impulsa la comunicación
 8. Aprovecha la diversidad
-9. se un lider
+9. tome cada uno la actitud de un lider
 10. establece un ambiente agradable
